@@ -1,1 +1,0 @@
-# Mandinas-Fortune-Teller
